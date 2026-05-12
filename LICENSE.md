@@ -1,4 +1,4 @@
-# 
+# automatic OBS Studio for PC | OBS Studio for Windows Effect | virtual-camera + recording is the best OBS Studio for PC | OBS Studio for Windows effect, featuring virtual-camera
 
 
 
